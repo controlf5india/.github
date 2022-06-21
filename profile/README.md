@@ -10,7 +10,7 @@ Being a Website Designer, focusing on quality and customer satisfaction, Control
 
 ***What Can We Do For You?***
 
-[HIre UI/UX Designers](https://www.controlf5.in/ui-ux-design/)
+[Hire UI/UX Designers](https://www.controlf5.in/ui-ux-design/)
 [Hire Shopify Experts](https://www.controlf5.in/shopify-experts/)
 [Hire eCommerce Developers](https://www.controlf5.in/hire-ecommerce-solution-experts/)
 
@@ -28,7 +28,7 @@ Being a Website Designer, focusing on quality and customer satisfaction, Control
 ![This is an image](https://www.controlf5.in/wp-content/uploads/2022/04/imgpsh_fullsize_anim_8_.webp)
 ![This is an image](https://www.controlf5.in/wp-content/uploads/2022/03/Sqare-Space.png)
 
-Drop Us A Line And Keep In Touch
+> Drop Us A Line And Keep In Touch [Contact Us](https://www.controlf5.in/contact-us/)
 
 
 
