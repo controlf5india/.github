@@ -10,7 +10,7 @@ ControlF5 has become a leading web design & development company and a renowned n
 
 Being a Website Designer, focusing on quality and customer satisfaction, ControlF5 has a team of creative ***Shopify Experts, WordPress Developers, Web Designers, Technical Writers, SEO Writers, Experienced Web Programmers, and eCommerce Solutions Experts*** armed with a proactive management team. Contact Us today to explore our web service offering!!
 
-## What Can We Do For You? 
+## What Can We Do For You? :octocat:
 
 [Hire UI/UX Designers](https://www.controlf5.in/ui-ux-design/)
 
@@ -23,7 +23,7 @@ Being a Website Designer, focusing on quality and customer satisfaction, Control
 [Hire Dedicated Remote Developers](https://www.controlf5.in/hire-dedicated-remote-developer/)
 
 
-## CMS Development & Web Apps Services
+## CMS Development :octocat: Web Apps Services :octocat:
 
 ![This is an image](https://www.controlf5.in/wp-content/uploads/2022/03/Shopify.png)
 ![This is an image](https://www.controlf5.in/wp-content/uploads/2022/03/WP.png)
