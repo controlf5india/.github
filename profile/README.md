@@ -7,4 +7,6 @@ What Can We Do For You?
 [UI/UX Designers](https://www.controlf5.in/ui-ux-design/)
 [Shopify Experts](https://www.controlf5.in/shopify-experts/)
 
-##![This is an image](https://www.controlf5.in/wp-content/uploads/2022/03/Shopify.png)
+![This is an image](https://www.controlf5.in/wp-content/uploads/2022/03/Shopify.png)
+
+![This is an image](https://www.controlf5.in/wp-content/uploads/2022/03/WP.png)
