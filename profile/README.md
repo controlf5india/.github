@@ -32,5 +32,9 @@ Being a Website Designer, focusing on quality and customer satisfaction, Control
 
 > Drop Us A Line And Keep In Touch [Contact Us](https://www.controlf5.in/contact-us/) :+1: :+1: :+1:
 
+Hire Us on [UpWork](https://www.upwork.com/freelancers/~011ae84939c9dab54c/)
+Hire Us on [Freelancer](https://www.freelancer.com/u/anurag17)
+Hire Us on [Shopify Experts](https://experts.shopify.com/controlf5india)
+
 
 
