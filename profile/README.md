@@ -11,7 +11,12 @@ Being a Website Designer, focusing on quality and customer satisfaction, Control
 
 [Hire eCommerce Developers](https://www.controlf5.in/hire-ecommerce-solution-experts/)
 
-[HIre React JS Developer](https://www.controlf5.in/hire-react-js-developer/)
+[Hire React JS Developer](https://www.controlf5.in/hire-react-js-developer/)
+
+[Hire Dedicated Remote Developers](https://www.controlf5.in/hire-dedicated-remote-developer/)
+
+
+
 
 ![This is an image](https://www.controlf5.in/wp-content/uploads/2022/03/Shopify.png)
 ![This is an image](https://www.controlf5.in/wp-content/uploads/2022/03/WP.png)
