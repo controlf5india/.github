@@ -6,11 +6,9 @@ Being a Website Designer, focusing on quality and customer satisfaction, Control
 ***What Can We Do For You?***
 
 [HIre UI/UX Designers](https://www.controlf5.in/ui-ux-design/)
-
 [Hire Shopify Experts](https://www.controlf5.in/shopify-experts/)
 
 [Hire eCommerce Developers](https://www.controlf5.in/hire-ecommerce-solution-experts/)
-
 [Hire React JS Developer](https://www.controlf5.in/hire-react-js-developer/)
 
 [Hire Dedicated Remote Developers](https://www.controlf5.in/hire-dedicated-remote-developer/)
