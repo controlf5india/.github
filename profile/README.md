@@ -44,7 +44,7 @@ Being a Website Designer, focusing on quality and customer satisfaction, Control
 
 > Hire Us on [Shopify Experts](https://experts.shopify.com/controlf5india)
 
-> Skype: [anurag.pandey17](skype:anurag.pandey17?chat)
+> Skype: [anurag.pandey17](https://join.skype.com/invite/goOWp52Db5W5)
 
 > Call Us: +919755524635
 
