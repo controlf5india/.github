@@ -47,6 +47,8 @@ Being a Website Designer, focusing on quality and customer satisfaction, Control
 
 > Skype: [anurag.pandey17](https://join.skype.com/invite/goOWp52Db5W5)
 
+> [GitHub Page](https://controlf5india.github.io/)
+
 > Call Us: +919755524635
 
 
